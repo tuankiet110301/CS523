@@ -14,3 +14,8 @@ Nhóm 8
 - Nguyễn Đắc Cường - 21521902
 - Mai Nguyễn Trung Kiên - 21522245
 - Huỳnh Nhân Thập - 21521457
+
+Nhóm 2
+- Nguyễn Hoàng Tân - 21521413
+- Nguyễn Ngọc Quang Huy - 20521401
+- Lê Huỳnh Khánh Duy - 21521995
